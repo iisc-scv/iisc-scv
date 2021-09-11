@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...Anything!
 - 📫 How to reach me: ...subhashc.iisc@gmail.com
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ...I am finish!
+- ⚡ Fun fact: ...I am finish!!
 -->
